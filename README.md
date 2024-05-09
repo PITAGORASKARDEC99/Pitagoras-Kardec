@@ -1,1 +1,5 @@
-# Pitáagoras Kardec
+# Pitágoras Kardec
+
+Computer Engineer
+
+
