@@ -1,1 +1,1 @@
-# Pitagoras-Kardec
+# Pitagoras Kardec
